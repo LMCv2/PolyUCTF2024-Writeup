@@ -116,6 +116,7 @@ It can be found that coherentWins has been added
 
 ![Alt text](image-2.png)
 
+☚ (<‿<)☚ 太屌了ㄅ！, 你通過了這關ㄝ！！！
 
 ![Alt text](image-3.png)
 
